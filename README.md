@@ -5,7 +5,7 @@
 
 - 💬 Ask me about **React or Java**
 
-- 📫 How to reach me **Call me on Phone number that i have provided**
+- 📫  to reach me **Call me on Phone number that i have provided in my CV**
 
 
 <p align="left">
