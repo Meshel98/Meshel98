@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **Call me on Phone number that i have provided**
 
-<h3 align="left">Connect with me:</h3>
+
 <p align="left">
 </p>
 
